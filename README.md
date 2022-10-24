@@ -5,5 +5,4 @@ I am an artist and future developer
 
 
 
-![7](https://user-images.githubusercontent.com/101611557/196836573-dcd5117e-a6e5-4764-81a7-857161e2d6f4.png)
 
